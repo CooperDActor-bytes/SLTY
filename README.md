@@ -1,0 +1,2 @@
+# SLTY
+Salty Coin!!!
